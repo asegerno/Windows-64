@@ -8,5 +8,5 @@ https://msdn.cyanlemon.net/global/%E6%93%8D%E4%BD%9C%E7%B3%BB%E7%BB%9F/Windows%2
 https://archive.org/download/en_win_xp_pro_x64_with_sp2_vl_x13-41611_202011/SP1/en_win_xp_pro_x64_with_sp2_vl_X13-41611.iso
 https://www.4shared.com/archive/pMExK089ce/
 https://drive.google.com/file/d/1u0jUxm6kYYH11fqaWbA_Pip5uQHo9JwO/
-https://1fichier.com/?9sfumfdd5mwlhhmgz78h
+https://1fichier.com/?9sfumfdd5mwlhhmgz78h/
 https://mega.nz/file/7YQVQaxY#RTu1Z9fRtBNcoZSaraieq-pWZ0dtDo9z1_Ck2qDpmPw/
